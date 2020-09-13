@@ -16,6 +16,7 @@ poem/mixchannel.md は、最初の転職のときに転職ドラフトに登録�
 
 - ikazuchisdiary@gmail.com
 - https://www.facebook.com/ikazuchisdiary/
+- https://twitter.com/Ikazuchis_diary
 
 ## 学歴・職歴
 
